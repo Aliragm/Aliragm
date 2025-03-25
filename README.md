@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently studying IT at IMD - UFRN<br>I'm looking to especialize in cybersecurity
+Currently studying IT at IMD - UFRN
 
 
 ## 🌐 Socials:
